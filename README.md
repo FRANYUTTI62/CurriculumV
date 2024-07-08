@@ -10,6 +10,6 @@
 
 ## Hecho por:
 
-###Ricardo Franyutti
+Ricardo Franyutti
 
 ### Linkedin: [https://www.linkedin.com/school/aluracursos/](https://www.linkedin.com/in/ricardo-gonzalez-franyutti-960853302/)
