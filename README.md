@@ -12,4 +12,4 @@
 
 Ricardo Franyutti
 
-### Linkedin: [https://www.linkedin.com/school/aluracursos/](https://www.linkedin.com/in/ricardo-gonzalez-franyutti-960853302/)
+### Linkedin: [https://www.linkedin.com/in/ricardo-gonzalez-franyutti](https://www.linkedin.com/in/ricardo-gonzalez-franyutti-960853302/)
